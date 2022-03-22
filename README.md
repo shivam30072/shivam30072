@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shivam30072
-- 👀 I’m interested in front end web development
+- 👀 I’m more interested in front end web development but i also want to learn back-end.
 - 🌱 I’m currently studying in IP university (Maharaja surajmal intitute of technology)
 - 💞️ I’m always ready to learn more.
 - 📫 reach me via email @ shivamkumar181211@gmal.com
