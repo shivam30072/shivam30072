@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @shivam30072
-- 👀 Front-end-developer looking for internships
 - 🌱 I’m currently studying in IP university as a 2nd year B.tech student at Maharaja surajmal intitute of technology.
 - 💞️ I’m always ready to learn more.
 - 📫 reach me via email @ shivamkumar181211@gmal.com
