@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shivam30072
 - 🌱 I’m a B.Tech underGraduate
-- 💞️ I’m always ready to learn more.
+- 💞️ love anime and football.
 - 📫 reach me via email @ shivamkumar181211@gmal.com
 -    Check out some of my latest projects 
 
